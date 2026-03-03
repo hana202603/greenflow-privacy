@@ -31,7 +31,7 @@ Since no personal data is collected, no personal information is stored or proces
 We may update this Privacy Policy from time to time. Any updates will be reflected on this page with a revised effective date.
 
 ### 6. Contact
-Email: shirleytianvip@gmail.com
+Email: greenflow.help@gmail.com
 
 ---
 
@@ -62,4 +62,4 @@ GreenCardFlow 不接入任何第三方统计、广告或数据追踪服务。
 本隐私政策可能会不时更新。如有更新，将在本页面发布并注明新的生效日期。
 
 ### 六、联系方式
-邮箱：shirleytianvip@gmail.com
+邮箱：greenflow.help@gmail.com
