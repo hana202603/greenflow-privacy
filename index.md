@@ -31,7 +31,7 @@ Since no personal data is collected, no personal information is stored or proces
 We may update this Privacy Policy from time to time. Any updates will be reflected on this page with a revised effective date.
 
 ### 6. Contact
-Email: hshao1121@gmail.com
+Email: shirleytianvip@gmail.com
 
 ---
 
